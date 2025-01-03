@@ -1,4 +1,4 @@
-# **Kartra Discount 2025 | Get up to 50% OFF**
+# **Kartra Discount (2025) — 55% OFF Coupon Code**
 
 Kartra is one of the leading all-in-one marketing platforms, providing users with tools for building websites, automating emails, managing sales funnels, and much more. Whether you’re a digital marketer or a small business owner, Kartra's powerful features can help you streamline your operations and grow your business. If you're looking to access Kartra at a discounted price, this guide will show you the best ways to grab the latest Kartra discount offers in 2025.
 
